@@ -1,4 +1,4 @@
 # test
 aaaa
-spend all your time waiting
+all your time waiting
 bbbbbbbbb
